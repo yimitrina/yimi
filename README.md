@@ -1,1 +1,7 @@
 # yimi
+
+
+
+jiggle
+wiggles
+tickle 
